@@ -1,3 +1,4 @@
 # Este blog recolpila todo una serie de aventuras con mi pareja
 
-Desde paseos sencillos hasta aquellos que nos permitieron aprender como en el futuro guiar a posibles turistas o exploradores como nosotros en aquella vez.
+A quien NO le gustaria saber que cosas tener en cuenta al momento de arrancar a un viaje de manera premeditada o en otras ocaciones de imprevisto. 
+
